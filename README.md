@@ -1,0 +1,1 @@
+[Linknya deploy pak👌😊] (https://deploy-mid-machine-learning-nikmal-anakoruo-suzpcss373cd6r8tfc.streamlit.app/)
